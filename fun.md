@@ -1,0 +1,1 @@
+[video](https://www.chapmanfuneral.com/obituaries/Michael-E-Palmer?obId=46541755&fbclid=IwY2xjawOlzM5leHRuA2FlbQIxMQBzcnRjBmFwcF9pZBAyMjIwMzkxNzg4MjAwODkyAAEeAOgXchdlpxy5XcRYpaHH-RKR6hFBtQiYzvphvKISDo-JpxT5ened9pzQHsc_aem_fnOzOmazFqjrByhvU6o1Ug)
